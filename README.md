@@ -1,1 +1,0 @@
-# NakanoBOT-Whatsapp-Noob
